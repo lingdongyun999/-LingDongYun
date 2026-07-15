@@ -17,5 +17,5 @@
 ---
 
 ### 🔗 快捷通道
-* 🌐 **官方网站**：[varnexa.lingdongaff.com](https://varnexa.lingdongaff.com)
+* 🌐 **官方网站**：[点击进入灵动云](https://trevona.lingdongyunttt.homes/#/register?code=pAXq93QL)
 * 💳 **支付方式**：支持**支付宝**直付（微信 / USDT 请联系官网 24h 客服）。
